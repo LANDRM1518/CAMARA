@@ -1,4 +1,0 @@
-# CAMARA
-# CAMARA
-# CAMARA
-# CAMARA
